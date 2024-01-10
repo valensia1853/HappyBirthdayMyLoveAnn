@@ -2,4 +2,4 @@
 
 Аня ты была умничкой целый год и заслужила хорошо отдохнуть!!!
 ![Логотип ](https://i.ytimg.com/vi/p0ggtmXghPg/maxresdefault.jpg)
-Подробности [путешествия ](https://ibb.co/WVLKmK4)
+[Дата путешествия ](https://ibb.co/WVLKmK4)
